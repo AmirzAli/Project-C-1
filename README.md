@@ -1,3 +1,3 @@
 # ShadowPost
 
-Hello, t3chbro. Nice to meet you!
+HITLER, 1488, SHIT, BOZO
