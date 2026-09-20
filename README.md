@@ -1,3 +1,3 @@
 # ShadowPost
 
-HITLER, 1488, SHIT, BOZO
+Censored
